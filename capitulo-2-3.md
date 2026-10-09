@@ -1,9 +1,7 @@
 ### **2.3 – Evidência cumulativa**
 
-Não existe uma prova de que a Bíblia seja inspirada por Deus. O que existe é uma evidência cumulativa. Ou seja, existem vários factos que, isoladamente, não provam nada. Mas todos juntos servem de prova. Isso não nos deve surpreender porque no nosso dia a dia estamos habituados a lidar com esse tipo de evidências.
+Não há um teste de laboratório que comprove que a Bíblia vem de Deus. O que temos diante de nós é o peso da evidência cumulativa: pistas que, soltas, não sustentam uma conclusão, mas que juntas constroem um argumento sólido.
 
-Tomemos como exemplo o meu primo João. Eu acredito que ele é um homem confiável. Conheço-o desde pequeno e posso relatar vários episódios que confirmam a sua honestidade, bondade e integridade. Mas cada episódio, por si só, não prova absolutamente nada. Contudo, se eu juntar tudo o que sei sobre ele posso provar que ele é uma excelente pessoa. Mesmo assim, nada irá substituir a experiência de conhecê-lo pessoalmente e conviver com ele durante muitos anos.
+​É assim que avaliamos as pessoas de carne e osso. Confio plenamente no meu primo João não por um gesto isolado de bondade, mas pela coerência de uma vida inteira que acompanhei de perto. Ainda que eu partilhe essas histórias, nada se compara a conhecê-lo e conviver com ele em primeira mão.
 
-O mesmo acontece na Bíblia. Eu posso mencionar mil e uma coisas diferentes sobre a Bíblia. Mas cada uma delas, isoladamente, não provará a sua autenticidade. Apenas lendo a Bíblia na totalidade e aplicando os princípios bíblicos na vida é que uma pessoa pode constatar que se trata dum livro confiável, com uma sabedoria sobre-humana.
-
-Mas esse é um exercício que poucos estão dispostos a fazer.
+​Com as Escrituras dá-se o mesmo. Argumentos teóricos ou históricos têm o seu lugar, mas nenhum encerra o debate sozinho. A perceção da sua sabedoria sobre-humana e autoridade só se revela por inteiro a quem se entrega à leitura e coloca os seus princípios em prática, um compromisso que a maioria prefere evitar.
