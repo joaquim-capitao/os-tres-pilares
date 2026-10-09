@@ -1,9 +1,9 @@
 ### **1.3 - Para lá do Big Bang**
 
-Durante muitos séculos prevaleceu a ideia de um Universo estático e eterno. A visão dominante defendia que sempre existira tal como o observamos. Contudo, atualmente a maioria da comunidade científica aceita a teoria do Big Bang, segundo a qual o Universo teve um começo e continua em expansão.
+Durante séculos, prevaleceu a conceção de um Universo estático e eterno, cuja existência perpétua dispensaria qualquer início. Hoje, contudo, o consenso científico apoia o modelo do Big Bang, que aponta para um início definido e uma expansão contínua iniciada há cerca de 13,8 mil milhões de anos.
 
-Pelo que tenho lido e refletido, enquanto apreciador de astronomia, parece razoável concluir que o Universo terá tido origem há cerca de 13.800 milhões de anos. Ainda assim surge uma questão inevitável. O que existia antes do Big Bang? Terá havido um momento em que não existia absolutamente nada?
+​Esta mudança de paradigma impõe uma interrogação inevitável: o que havia antes deste marco primordial? Terá existido um momento de vazio absoluto?
 
-A hipótese de um “nada” absoluto levanta dificuldades lógicas. Se em algum momento nada existisse, nada poderia ter surgido depois, pois do nada não pode resultar coisa alguma. Assim, mesmo que o Big Bang represente o início do Universo tal como o conhecemos, é coerente admitir que algo esteve na sua origem.
+​A hipótese de um "nada" estrito é, a meu ver, uma enorme contradição lógica. Se em algum ponto não existisse absolutamente nada, nada poderia ter emergido, dado que do nada, nada se cria (ex nihilo nihil fit). Por conseguinte, mesmo que o Big Bang marque a génese do nosso espaço-tempo, a razão sugere a presença de uma realidade prévia que lhe serviu de causa.
 
-Dessa forma, torna-se inevitável reconhecer a existência de “Algo” eterno. Muitos entendem esse “Algo” como uma energia primordial impessoal e sem propósito definido. Pessoalmente, inclino-me para a ideia de que esse “Algo” seja dotado de inteligência, tendo em conta o sentido amplo e profundo que a própria palavra “inteligência” encerra.
+​Torna-se, assim, plausível conceber a existência de uma realidade fundamental e eterna. Enquanto alguns a interpretam como uma força primordial impessoal e sem desígnio, inclino-me para a perspetiva de que esse princípio originário possui uma dimensão consciente. Terá sido um princípio dotado de inteligência.
