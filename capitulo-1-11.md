@@ -1,19 +1,19 @@
 ### **1.11 - Comunicação entre Deus e Homens**
 
-Existem diferentes formas de comunicação. Por exemplo, mesmo que não nos apercebamos disso, muita da nossa comunicação é corporal. Os surdos comunicam por gestos. Existe comunicação escrita, braille, código Morse, sinais de fumo, etc, etc, etc.
+A comunicação manifesta-se através de múltiplos canais. No quotidiano, expressamo-nos não apenas pela fala, mas pela linguagem corporal, pela escrita, pelo braille ou pela língua gestual, sem esquecer códigos como o morse. Se a limitada condição humana recorre a tão variadas formas de transmitir significado, seria ingénuo supor que o Ser Divino estivesse confinado a uma única via de expressão.
 
-Algumas pessoas gostariam que Deus lhes aparecesse à frente e falasse audivelmente com eles. Talvez em português ou, como nos filmes de Hollywood, em inglês. Mas é claro que, se até os humanos comunicam-se de diversas formas, o Ser Divino não está limitado a apenas uma forma de comunicar.
+​Muitos alimentam a expectativa pueril de uma teofania espetacular: gostariam que Deus surgisse diante de si e falasse com voz audível, de preferência no seu próprio idioma ou, à semelhança dos clichés cinematográficos, num inglês solene. 
 
-Um pintor comunica uma mensagem através do quadro que pinta. Ele comunica de uma forma que é preciso sensibilidade da parte de quem olha para a tela. Para alguns, uma linda pintura a óleo é apenas um conjunto de pinceladas. Para outros, o pintor está a expressar um estado de espírito, opiniões políticas, sentimentos, etc. O mesmo acontece com a comunicação do Criador de todas as coisas.
+No entanto, reduzir a manifestação divina à acústica de palavras humanas é ignorar a escala e a natureza do Criador.
 
-Ao olharmos para o Universo à nossa volta, é preciso sensibilidade para entender o que Deus está a dizer. Às vezes, a mensagem é demasiado óbvia. Por exemplo, a rotação da Terra faz com que existam períodos regulares de luz e escuridão. Com isso Deus está a dizer que devemos viver a nossa vida num ciclo contínuo de atividades e descanso.
+​Um pintor comunica a sua intenção através do quadro que executa. Esta forma de expressão exige sensibilidade do observador. Para um olhar desatento, uma tela a óleo pode parecer apenas uma sobreposição de pigmentos e pinceladas; para quem sabe ver, ela revela um estado de espírito, uma crítica subtil ou uma visão de mundo. Com o Arquiteto do cosmos passa-se algo semelhante: a Sua mensagem traduz-se na própria textura da realidade.
 
-Quando insistimos em ignorar essas “orientações” de Deus, colhemos consequências nefastas. Podemos ter um esgotamento se ignorarmos a necessidade de descanso. A mensagem de Deus é óbvia, mas é preciso sensibilidade para entendê-la.
+​Ao contemplarmos o Universo, é essa mesma sensibilidade que nos permite discernir a linguagem da criação. Por vezes, ela imprime-se nos próprios ritmos da natureza: a rotação da Terra dita a sucessão do dia e da noite, estabelecendo um compasso biológico claro entre a atividade produtiva e o repouso reparador. Ignorar este desígnio estrutural, como quando sacrificamos o descanso ao ponto do esgotamento físico e psíquico, é colidir contra a própria ordem intrínseca com que fomos delineados.
 
-Existe ainda aquilo a que alguns chamam de "Lei Moral". Como é que se desenvolveu aquela voz interior que nos diz o que devemos (ou não devemos) fazer? Porque será que sentimos compaixão por aqueles que são mais fracos? Porque é que nos atiramos ao mar para salvar alguém que nem conhecemos? O que nos leva a fazer o bem a quem nos faz mal? Porque é que existe uma noção universal do que é certo e errado? O facto de existirem muitas culturas diferentes não impede que existam também princípios morais elementares que são comuns a todos os povos. De onde vem essa "Lei Moral"?
+​Para lá da ordem física, há outra dimensão em que essa comunicação se torna íntima e penetrante: a chamada "Lei Moral". De onde brota o imperativo da consciência que nos interpela sobre o que é justo ou reprovável? O que explica a compaixão espontânea pelos desamparados, o impulso de arriscar a própria vida para salvar um desconhecido nas águas de um mar revolto, ou o desprendimento de retribuir o mal com o bem?
 
-A mesma inteligência que deu origem ao Universo, deu também origem a nós. Portanto, essa noção universal do certo e do errado origina-se da mesma Inteligência Superior, a quem chamamos “Deus”.
+​Apesar da imensa diversidade de costumes através dos séculos e das geografias, subsiste um núcleo ético elementar reconhecido por todas as civilizações. Essa consciência interior não é um acidente mecânico da matéria. Emana da mesma Mente que estruturou o cosmos e imprimiu na criatura consciente a capacidade de discernir o bem.
 
-Portanto, Deus comunica-se connosco, sim. Mas não é em português nem em inglês. Ele comunica por meio da criação.
+​Deus comunica connosco de forma constante e inteligível por intermédio da arquitetura do Universo e da voz silenciosa da consciência moral.
 
-Mas o que se pode dizer sobre os livros sagrados das religiões?  Será que Deus também se expressa por meio deles? É sobre isso que vou falar a seguir.
+​Resta, contudo, uma questão essencial: que papel desempenham, afinal, os textos sagrados das diferentes tradições religiosas? Poderá a Palavra divina manifestar-se também através deles? É a essa reflexão que nos dedicaremos de seguida.
