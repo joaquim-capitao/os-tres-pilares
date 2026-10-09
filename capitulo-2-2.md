@@ -1,9 +1,13 @@
 ### **2.2 – Inspiração divina**
 
-Se a Bíblia foi, obviamente, escrita por homens porque é que alguns lhe chamam “Palavra de Deus”? Comecemos por lembrar quem é Deus.
+Se a Bíblia foi, inegavelmente, redigida por mãos humanas, por que razão tantos a consideram a "Palavra de Deus"? A resposta começa na própria compreensão de quem é Deus.
 
-Conforme já mencionei, Deus não é um ser humanoide, mas sim a fonte de energia originou o Universo físico. Essa fonte de energia não é abstrata e desprovida de propósito. Deus é um Ser espiritual com personalidade e inteligência. Portanto, a inteligência dos humanos, assim como a sua Lei Moral contida no seu íntimos, são um reflexo da Inteligência Suprema: Deus.
+​Como referi anteriormente, Deus não é uma figura antropomórfica, mas a força primordial que deu origem ao Universo físico. Longe de ser uma energia impessoal ou caótica, Deus é um Ser espiritual dotado de inteligência, intenção e personalidade. 
 
-Sendo assim, existe uma infinidade de livros que contém bons conselhos e que, de certa forma, expressam os pensamentos de Deus. Mas existem, na minha opinião, razões válidas para acreditar que a Bíblia reflete a inteligência de Deus de forma muito mais perfeita.
+A consciência humana (a nossa capacidade racional e o senso moral que nos habita) nada mais é do que um reflexo dessa Inteligência Suprema.
 
-O que me leva a afirmar isso? O que torna a Bíblia diferente?
+​É natural, portanto, que inúmeras obras literárias contenham sabedoria genuína e façam eco do pensamento divino. 
+
+Contudo, há fundamentos sólidos para sustentar que a Bíblia traduz essa inteligência com uma profundidade e clareza ímpares.
+
+​O que sustenta esta conclusão? O que faz, afinal, da Bíblia um texto singular?
