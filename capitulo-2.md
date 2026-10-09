@@ -1,5 +1,5 @@
 ## **2 - A Bíblia**
 
-Se perguntarmos a algum europeu ou americano qual é o livro que expressa a palavra de Deus, em princípio a resposta será: a Bíblia. Mas a resposta será bem diferente se fizermos a mesma pergunta a um asiático. Cada religião tem o seu “livro sagrado”.
+Se questionarmos um ocidental sobre qual o texto que contém a palavra divina, a resposta quase unânime apontará para a Bíblia. Contudo, essa mesma pergunta obterá respostas distintas no Médio Oriente ou na Ásia. Cada grande tradição religiosa ergueu os seus próprios textos fundacionais como repositórios da revelação divina 
 
-No caso da Bíblia, ela afirma ter sido “inspirada por Deus”. Essa afirmação, por si só, não prova nada. Mas serve de ponto de partida para a análise que pretendo fazer a seguir.
+​No caso da tradição judaico-cristã, as Escrituras afirmam-se como texto "inspirado por Deus". Uma declaração dessa natureza, tomada isoladamente, não prova absolutamente nada. No entanto, constitui o ponto de partida indispensável para o exame crítico a que nos propomos de seguida.
