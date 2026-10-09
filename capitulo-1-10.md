@@ -1,17 +1,14 @@
 ### **1.10 – Quem fez Deus?**
 
-Muitas vezes, quando alguém pergunta 'Quem criou Deus?' está a tentar demolir a crença em deuses. De facto, essa pergunta expõe a incoerência da crença em deuses mitológicos criados pelo homem.
+A clássica interrogação "Quem criou Deus?" é frequentemente brandida como um golpe fatal contra o teísmo. No entanto, embora desmonte com eficácia o panteão de divindades mitológicas (entidades que, nas próprias narrativas humanas, nascem, combatem e têm genealogias), ela erra completamente o alvo quando aplicada à Causa Primeira.
 
-No entanto, conforme expliquei mais atrás, eu não acredito em deuses mitológicos. Quando falo em Deus, estou a falar num Ser que sempre existiu. Ou seja, com a palavra "Deus" refiro-me a um Ser eterno, por definição. Diante desse conceito, a pergunta 'Quem criou Deus?' não faz sentido
+​Como sublinhei anteriormente, a minha perspetiva não se confunde com mitologias populares. Ao falar de Deus, refiro-me à Realidade Fundamental que sustenta a existência: um Ser eterno e incausado por definição. Sob este enquadramento, perguntar quem criou o *Incriado* é incorrer numa contradição em termos; a objeção não refuta a ideia de Deus, apenas revela que se parte de uma definição distorcida.
 
-porque é redundante. Em vez de desacreditar a crença em Deus, a pergunta “Quem fez Deus?” expõe a ignorância de quem a levanta.
+​Trata-se de um erro de categoria, comparável a inquirir "qual é o aroma da cor azul?". A pergunta nasce já viciada, pois atribui à cor uma propriedade que não pertence à sua natureza. Da mesma forma, questionar a origem de Deus equivale a inserir o Criador na categoria das coisas criadas, contingentes e temporais. Uma Causa Primeira não decorre de causas anteriores; é, por necessidade lógica, incausada.
 
-Muitos não conseguem conceber a ideia de um Deus eterno que não precisou de ser criado. Mas, em contraste, acreditam que a matéria e a energia existiram sempre. Logo, acreditam em ALGO eterno. Só não acreditam num SER eterno. Então, o problema não está na eternidade em si. O problema está em aceitar que esse ALGO eterno possa ter personalidade ou inteligência.
+​Curiosamente, muitos dos que rejeitam a eternidade divina aceitam sem hesitação a eternidade do cosmos material ou das leis da física. Isto demonstra que a razão humana não tem dificuldade em conceber a eternidade em si mesma. O ponto de fratura não reside na ideia de "algo" eterno, mas na recusa em admitir que esse "algo" seja consciente, com propósito ou intelecto.
 
-Por outro lado, alguém poderá dizer que a matéria e a energia não existiram sempre, que tiveram um início. Nesse caso, quem as criou? E quem criou quem quer que as tenha criado? E assim por diante. Nesse caso, entramos também numa regressão infinita. Portanto, aqueles que perguntam “Quem fez Deus?” para desacreditar a crença em Deus, encontram um problema igual em relação às suas próprias crenças.
+​Se, pelo contrário, se postular que o universo físico teve um início absoluto e que tudo o que existe resulta de uma sucessão temporal de causas, caímos numa regressão infinita, onde cada elo exige uma causa prévia sem que nada sirva de ponto de partida. Transferir o problema para um vazio explicativo não o resolve: apenas adia a resposta necessária.
 
-A própria pergunta também não faz sentido porque parte de uma suposição errada. É como se alguém perguntasse: “Como é o cheiro do azul?” Visto que o azul não está na categoria de coisas que têm cheiro, então a pergunta está errada em si mesma.
+​A premissa lógica permanece inalterada: do nada, nada surge. Se em algum instante o vazio fosse absoluto, nenhuma realidade teria emergido. Dado que o Universo e a vida são factos irrefutáveis, torna-se inescapável concluir que um Princípio eterno sempre subsistiu. A essa Realidade originária, incausada e dotada da inteligência manifesta na ordem cósmica, é ao que chamo Deus.
 
-Assim como o azul não está na categoria das coisas que têm cheiro, o Criador também não se encontra na categoria de coisas que foram criadas, vieram a existir, ou foram causadas. Deus é “não-causado” e “não-criado”: Ele simplesmente existe.
-
-Conforme referi anteriormente, o nada não pode produzir nada. Então, se alguma vez houve um tempo em que não existia absolutamente nada, então nada poderia vir a existir. Mas as coisas existem. Por isso, uma vez que nunca pode ter havido o "nada absoluto", alguma coisa existiu sempre. Esta “coisa” que sempre existiu, e que de  origem a todas as coisas, é o que eu chamo de Deus.
