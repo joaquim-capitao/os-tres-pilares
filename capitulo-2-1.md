@@ -1,7 +1,7 @@
 ### **2.1 - O que é a Bíblia**
 
-Algumas pessoas imaginam que a Bíblia seja uma lista de regras e palavras ditas pelo próprio Deus. Quem pensa assim, certamente nunca leu a Bíblia.
+Muitos imaginam a Bíblia como um manual rígido de preceitos ou uma transcrição literal de decretos ditados diretamente pela divindade. Esta conceção é, contudo, rapidamente desfeita por uma leitura atenta do próprio texto.
 
-A Bíblia é, na realidade, uma compilação de livros escritos ao longo dos séculos. Contém histórias, diálogos, poesia, metáforas, parábolas, profecias, etc.
+​Longe de ser uma obra monolítica, a Bíblia constitui uma vasta biblioteca erigida ao longo de mais de um milénio. As suas páginas acolhem uma extraordinária pluralidade de géneros literários: crónicas históricas, diálogos, poesia, provérbios e parábolas.
 
-Em alguns casos, o escritor do livro está claramente identificado no próprio livro bíblico. Em outros casos, a tradição oral atribui a autoria. Portanto, quem conhece a Bíblia sabe perfeitamente que esta foi escrita por homens.
+​Em determinados livros, o escritor humano surge explicitamente identificado; noutros, a autoria repousa em atribuições da tradição histórica e oral. Quem se debruça sobre as Escrituras com rigor e honestidade intelectual constata com facilidade que se trata de um conjunto de textos redigido por mãos humanas, profundamente enraizado nos contextos, linguagens e vicissitudes do seu próprio tempo.
